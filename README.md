@@ -4,4 +4,4 @@
 
 - 👋 My name is Rommy
 - 🌱 Currently own a computer and laptop reparation services
-- 📫 How to reach me: <a href='https://instagram.com/rommymaul' target='_blank'>Instagram</a>
+- 📫 How to reach me: <a href='https://twitter.com/nus1x' target='_blank'>Twitter</a>
